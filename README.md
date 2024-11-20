@@ -9,6 +9,6 @@ por lo que fue dificil poder traducir muchas partes que solo podrian modificarse
 
 Espero lo Disfruten.
 
-Agradecimiento al creador de mod: 潜艇伟伟迷 (Submanine WEIWEI)
+Agradecimiento al creador de mod: 潜艇伟伟迷 (Submarine WEIWEI)
 
 Traducto: Drageam
